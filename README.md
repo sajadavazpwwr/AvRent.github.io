@@ -1,1 +1,0 @@
-# AvRent.github.io
